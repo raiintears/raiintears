@@ -32,6 +32,6 @@
 
 ⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣
 
-<img src="https://i.pinimg.com/originals/b4/47/ca/b447cae5b814dc5d25b9fc1e2e23cdcd.gif" alt="This may contain: the girl is walking in front of a pink background with stars and other things on it"/>
+<img src="https://i.pinimg.com/originals/20/75/6e/20756ebcb67560322d98ad29ad4ae454.gif" alt="This may contain: an anime character with red hair and white shirt holding a cell phone in her hand"/>
 
 <img src="https://i.pinimg.com/originals/9c/80/8d/9c808d467ef6aa6c4ca8cf1411a6c19f.gif" alt="This may contain: three pink roses with white swirls and sparkles on the petals are in front of a white background"/>
