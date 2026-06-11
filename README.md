@@ -26,8 +26,12 @@
 
 ꒰ঌ- 𝙎𝙔𝙇𝙑𝙀𝙊𝙉 𝙈𝙔 𝘼𝙇𝙇 𝙏𝙄𝙈𝙀 𝙁𝘼𝙑𝙊𝙍𝙄𝙏𝙀!!!
 
+꒰ঌ- 𝙂𝙚𝙣 6 𝙬𝙞𝙡𝙡 𝙖𝙡𝙬𝙖𝙮𝙨 𝙝𝙖𝙫𝙚 𝙢𝙮 𝙝𝙚𝙖𝙧𝙩ㅤꨄ︎
+
 ┈ ┈ ┈ ┈ ୨♡୧ ┈ ┈ ┈ ┈
 
 ⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣
+
+<img src="https://i.pinimg.com/originals/b4/47/ca/b447cae5b814dc5d25b9fc1e2e23cdcd.gif" alt="This may contain: the girl is walking in front of a pink background with stars and other things on it"/>
 
 <img src="https://i.pinimg.com/originals/9c/80/8d/9c808d467ef6aa6c4ca8cf1411a6c19f.gif" alt="This may contain: three pink roses with white swirls and sparkles on the petals are in front of a white background"/>
