@@ -1,7 +1,7 @@
 <p align="center">
 <img src="https://i.pinimg.com/originals/0f/94/0a/0f940a757d83dbff6ef8eccb37d4d82f.gif" alt="This may contain: two hearts with pink roses and diamonds in the middle"/> 
 </p> 
-  
+
   **𝓗𝓮𝓵𝓵𝓸 𝔀𝓮𝓵𝓬𝓸𝓶𝓮 𝓽𝓸 𝓶𝔂 𝓹𝓪𝓰𝓮!! ── .✦**
 <img src="https://i.pinimg.com/originals/24/5a/7e/245a7eaf38d8830658c482962a4ef567.gif" alt="This may contain: an abstract pink and white background with wavy lines"/>
 <p align="center">
@@ -33,7 +33,7 @@
 <p align="center">
 <img src="https://i.pinimg.com/originals/20/75/6e/20756ebcb67560322d98ad29ad4ae454.gif" alt="This may contain: an anime character with red hair and white shirt holding a cell phone in her hand"/>
 </p> 
-
 <p align="center">
 <img src="https://i.pinimg.com/originals/9c/80/8d/9c808d467ef6aa6c4ca8cf1411a6c19f.gif" alt="This may contain: three pink roses with white swirls and sparkles on the petals are in front of a white background"/>
 </p>
+<img src="https://i.pinimg.com/originals/ce/4d/37/ce4d376ee18f1d9ea0a4e64632995384.gif" alt="This may contain: pink roses and pearls are arranged in the shape of heart - shaped jewels on a white background"/>
