@@ -16,6 +16,9 @@
 <img src="https://pixelsafari.neocities.org/blinkies/madeformagic.gif"/>
  <img src="https://pixelsafari.neocities.org/blinkies/daydream.gif"/>
  </p>
+ <p align="center">
+ <img src="https://pixelsafari.neocities.org/dividers/vine15.gif"/>
+
 <p align="center">
 <img src="https://pixelsafari.neocities.org/favicon/nature/plant/flower/pink34.gif"/>
 -𝙃𝙖𝙡𝙡𝙤 𝙞𝙢 𝙍𝙖𝙞𝙣!! ദ്ദി(｡•̀ ,<)~✩‧₊<img src="https://pixelsafari.neocities.org/favicon/nature/plant/flower/pink34.gif"/>
@@ -42,6 +45,8 @@
 ⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣⌣
 
 <p align="center">
+<img src="https://pixelsafari.neocities.org/dividers/vine15.gif"/>
+ <p align="center">
 <img src="https://i.pinimg.com/originals/20/75/6e/20756ebcb67560322d98ad29ad4ae454.gif" alt="This may contain: an anime character with red hair and white shirt holding a cell phone in her hand"/>
 </p> 
 <p align="center">
