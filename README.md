@@ -2,7 +2,7 @@
 <img src="https://i.pinimg.com/originals/24/5a/7e/245a7eaf38d8830658c482962a4ef567.gif" alt="This may contain: an abstract pink and white background with wavy lines"/>
 
 
-**-𝘏𝘢𝘭𝘭𝘰 𝘪𝘮 𝘙𝘢𝘪𝘯/𝘙𝘢𝘪𝘯𝘦𝘺,, 𝘧𝘦𝘦𝘭 𝘧𝘳𝘦𝘦 𝘵𝘰 𝘣𝘦𝘤𝘰𝘮𝘦 𝘮𝘰𝘰𝘵𝘴! ദ്ദി(｡•̀ ,<)~✩‧₊**
+**-𝘏𝘢𝘭𝘭𝘰 𝘪𝘮 𝘙𝘢𝘪𝘯/𝘙𝘢𝘪𝘯𝘦𝘺! ദ്ദി(｡•̀ ,<)~✩‧₊**
 
 ⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢
 
