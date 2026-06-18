@@ -38,3 +38,17 @@
 <img src="https://i.pinimg.com/originals/9c/80/8d/9c808d467ef6aa6c4ca8cf1411a6c19f.gif" alt="This may contain: three pink roses with white swirls and sparkles on the petals are in front of a white background"/>
 </p>
 <img src="https://i.pinimg.com/originals/24/5a/7e/245a7eaf38d8830658c482962a4ef567.gif" alt="This may contain: an abstract pink and white background with wavy lines"/>
+<p align="center">
+<img src="https://pixelsafari.neocities.org/stamps/more/rainbow3.gif"/>
+<img src="https://pixelsafari.neocities.org/stamps/fuckyesimgirly.gif"/>
+<img src="https://pixelsafari.neocities.org/stamps/more/ribbons.png"/>
+<img src="https://pixelsafari.neocities.org/stamps/more/bows.png"/>
+<img src="https://pixelsafari.neocities.org/stamps/more/cutethings.gif"/>
+<img src="https://pixelsafari.neocities.org/stamps/more/pinkhate.png"/>
+<img src="https://pixelsafari.neocities.org/stamps/sylveongif.gif"/>
+<img src="https://pixelsafari.neocities.org/stamps/sylveon.gif"/>
+<img src="https://pixelsafari.neocities.org/stamps/sylveonanime.gif"/>
+ <img src="https://pixelsafari.neocities.org/stamps/cutepokemon.gif"/>
+ <img src="https://pixelsafari.neocities.org/stamps/ilovemyds.png"/>
+<img src="https://pixelsafari.neocities.org/stamps/cookierun.gif"/>
+</p>
