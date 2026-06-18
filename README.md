@@ -2,14 +2,24 @@
 <img src="https://i.pinimg.com/originals/0f/94/0a/0f940a757d83dbff6ef8eccb37d4d82f.gif" alt="This may contain: two hearts with pink roses and diamonds in the middle"/> 
 </p> 
 
-  **𝓗𝓮𝓵𝓵𝓸 𝔀𝓮𝓵𝓬𝓸𝓶𝓮 𝓽𝓸 𝓶𝔂 𝓹𝓪𝓰𝓮!! ── .✦**
+  **𝓗𝓮𝓵𝓵𝓸 𝔀𝓮𝓵𝓬𝓸𝓶𝓮 𝓽𝓸 𝓶𝔂 𝓹𝓪𝓰𝓮!! ── .✦** <img src="https://pixelsafari.neocities.org/favicon/symbol/heart/fat.gif"/><img src="https://pixelsafari.neocities.org/favicon/fashion/bow/pink16.gif"/>
+<p align="center">
+<img src="https://pixelsafari.neocities.org/dividers/lacytiara.png"/><img src="https://pixelsafari.neocities.org/dividers/lacytiara.png"/><img width="272" height="39" alt="image" src="https://github.com/user-attachments/assets/5d5a5e8c-4494-49ed-8fc4-228e2b6ad892" />
+</p>
+
 <img src="https://i.pinimg.com/originals/24/5a/7e/245a7eaf38d8830658c482962a4ef567.gif" alt="This may contain: an abstract pink and white background with wavy lines"/>
 <p align="center">
 <img src="https://i.pinimg.com/736x/ed/fc/51/edfc515a523efa8ae247913b1e73cb07.jpg" alt="Story pin image"/>
-
-
+ <p align="center">
+ <img src="https://pixelsafari.neocities.org/blinkies/gyaru.gif"/>
+<img src="https://pixelsafari.neocities.org/blinkies/princess.gif"/>
+<img src="https://pixelsafari.neocities.org/blinkies/madeformagic.gif"/>
+ <img src="https://pixelsafari.neocities.org/blinkies/daydream.gif"/>
+ </p>
 <p align="center">
--𝙃𝙖𝙡𝙡𝙤 𝙞𝙢 𝙍𝙖𝙞𝙣!! ദ്ദി(｡•̀ ,<)~✩‧₊
+<img src="https://pixelsafari.neocities.org/favicon/nature/plant/flower/pink34.gif"/>
+-𝙃𝙖𝙡𝙡𝙤 𝙞𝙢 𝙍𝙖𝙞𝙣!! ദ്ദി(｡•̀ ,<)~✩‧₊<img src="https://pixelsafari.neocities.org/favicon/nature/plant/flower/pink34.gif"/>
+
 <p align="center">
 ⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢⌢
 <p align="center">
@@ -36,6 +46,9 @@
 </p> 
 <p align="center">
 <img src="https://i.pinimg.com/originals/9c/80/8d/9c808d467ef6aa6c4ca8cf1411a6c19f.gif" alt="This may contain: three pink roses with white swirls and sparkles on the petals are in front of a white background"/>
+</p>
+<p align="center">
+<img src="https://pixelsafari.neocities.org/dividers/lacytiara.png"/><img src="https://pixelsafari.neocities.org/dividers/lacytiara.png"/><img width="272" height="39" alt="image" src="https://github.com/user-attachments/assets/5d5a5e8c-4494-49ed-8fc4-228e2b6ad892" />
 </p>
 <img src="https://i.pinimg.com/originals/24/5a/7e/245a7eaf38d8830658c482962a4ef567.gif" alt="This may contain: an abstract pink and white background with wavy lines"/>
 <p align="center">
