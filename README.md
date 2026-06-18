@@ -5,7 +5,7 @@
   **𝓗𝓮𝓵𝓵𝓸 𝔀𝓮𝓵𝓬𝓸𝓶𝓮 𝓽𝓸 𝓶𝔂 𝓹𝓪𝓰𝓮!! ── .✦**
 <img src="https://i.pinimg.com/originals/24/5a/7e/245a7eaf38d8830658c482962a4ef567.gif" alt="This may contain: an abstract pink and white background with wavy lines"/>
 <p align="center">
-<img src="https://i.pinimg.com/736x/1b/d7/de/1bd7de31b5c9f93f062f47d24c8d71fd.jpg" alt="Story pin image"/>
+<img src="https://i.pinimg.com/736x/ed/fc/51/edfc515a523efa8ae247913b1e73cb07.jpg" alt="Story pin image"/>
 
 
 <p align="center">
