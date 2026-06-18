@@ -37,4 +37,4 @@
 <p align="center">
 <img src="https://i.pinimg.com/originals/9c/80/8d/9c808d467ef6aa6c4ca8cf1411a6c19f.gif" alt="This may contain: three pink roses with white swirls and sparkles on the petals are in front of a white background"/>
 </p>
-<img src="https://i.pinimg.com/originals/0f/ca/0c/0fca0c5c79d71d39112b4936992a0676.gif" alt="This may contain: a pink bow on top of a white and pink striped background with text that reads, i love you"/>
+<img src="https://i.pinimg.com/originals/24/5a/7e/245a7eaf38d8830658c482962a4ef567.gif" alt="This may contain: an abstract pink and white background with wavy lines"/>
