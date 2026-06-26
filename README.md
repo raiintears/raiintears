@@ -53,9 +53,10 @@
 <img src="https://i.pinimg.com/originals/9c/80/8d/9c808d467ef6aa6c4ca8cf1411a6c19f.gif" alt="This may contain: three pink roses with white swirls and sparkles on the petals are in front of a white background"/>
 </p>
 <p align="center">
-<img src="https://pixelsafari.neocities.org/dividers/lacytiara.png"/><img src="https://pixelsafari.neocities.org/dividers/lacytiara.png"/><img width="272" height="39" alt="image" src="https://github.com/user-attachments/assets/5d5a5e8c-4494-49ed-8fc4-228e2b6ad892" />
+ <img src="https://i.pinimg.com/originals/24/5a/7e/245a7eaf38d8830658c482962a4ef567.gif" alt="This may contain: an abstract pink and white background with wavy lines"/>
 </p>
-<img src="https://i.pinimg.com/originals/24/5a/7e/245a7eaf38d8830658c482962a4ef567.gif" alt="This may contain: an abstract pink and white background with wavy lines"/>
+<p align="center">
+<img src="https://pixelsafari.neocities.org/dividers/lacytiara.png"/><img src="https://pixelsafari.neocities.org/dividers/lacytiara.png"/><img width="272" height="39" alt="image" src="https://github.com/user-attachments/assets/5d5a5e8c-4494-49ed-8fc4-228e2b6ad892" />
 <p align="center">
 <img src="https://pixelsafari.neocities.org/stamps/more/rainbow3.gif"/>
 <img src="https://pixelsafari.neocities.org/stamps/fuckyesimgirly.gif"/>
